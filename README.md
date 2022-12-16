@@ -66,6 +66,4 @@ development in any research area he will be involved in.
 I believe that Mr. Rashid would be an excellent addition to any research team. I 
 hope you will also find Mr. Rashid’s attributes and potential attractive and I hope 
 that you will favorably consider his application for the Ph.D degree in your 
-University.
-I wish him best of luck.
-<a href=''> Link to Letter -> </a>
+University. I wish him best of luck.
